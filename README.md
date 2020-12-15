@@ -1,1 +1,1 @@
-Here are some simple ideas for building projects
+Here are some simple ideas for building projects.
